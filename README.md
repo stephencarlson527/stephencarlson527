@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @stephencarlson527
 - 👀 My Hobbies include modern art, games, and technology
-- 🌱 I’m currently searching for my next full time position
+- 🌱 I’m currently searching for my next full-time position
 - 📫 How to reach me: scdesignlife@gmail.com | https://www.linkedin.com/in/stephen-carlson-884b7872
 
 <!---
